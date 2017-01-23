@@ -5,7 +5,6 @@
   The accompanying code will be provided if needed.
   
   Yuri Balgir 
-  
-  (ybalgir@live.com)
-  
   +44 7906 149 320
+  ybalgir@live.com
+  
